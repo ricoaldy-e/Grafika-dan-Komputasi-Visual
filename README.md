@@ -1,1 +1,0 @@
-# Grafika-dan-Komputasi-Visual
